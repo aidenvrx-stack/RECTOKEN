@@ -1,2 +1,1 @@
-# RECTOKEN
-DISCLAIMER — NOT AFFILIATED WITH REC ROOM  This trailer is an unofficial fan-made project created for entertainment and promotional purposes only.  
+**Disclaimer:** RecFlare is an independent, fan-made project and is not affiliated with, endorsed by, sponsored by, or officially connected to Rec Room Inc. or Rec Room (RR). All Rec Room trademarks and assets belong to their respective owners.
